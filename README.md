@@ -1,2 +1,3 @@
 # leslieferolito.github.io 
-Hi, my names is leslie and Im a senior at Toppenish High School
+#### Hi, Im Leslie Ferolito and I am a Senior at Toppenish High School
+
